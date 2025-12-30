@@ -1,1 +1,1 @@
-a blockchain & fullstack dev, maybe?
+a software engineer, maybe?
